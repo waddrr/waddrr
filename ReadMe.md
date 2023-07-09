@@ -1,5 +1,5 @@
-# 💫 About Me:
-Opa e aí, eu sou Wadson Almeida! 👋🏿<br> 
+# Opa e aí, eu sou Wadson Almeida! 👋🏿
+<br> 
 
 
 ## 🌐 Socials:
