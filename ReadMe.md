@@ -1,4 +1,4 @@
-# Opa e aí, eu sou Wadson Almeida! 👋🏿
+# Opa e aí, me chamo Wadson Almeida! 👋🏿
 <br> 
 
 ## 🌐 Socials:
